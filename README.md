@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @santanam23
+- 👋 Hi, I’m Miriam Santana
 - 👀 I’m interested in playing sand volleyball
 - 🌱 I’m currently learning ASL on my off days
 - 💞️ I’m looking to collaborate on tech lingo
